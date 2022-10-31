@@ -1,4 +1,4 @@
-# Hi, I'm Dex (:computer::smile face:)
+# Hi, I'm Dex (:computer: :Smiling:)  
 
 
 
